@@ -1,7 +1,4 @@
 - Hi, We're DISTRICTSELOZAR, but you may call us Selozar. We are the co-host of an OSDD-1B system, with numerous fictives.
--
--Please be cautious when interacting with us, we're extremely sensitive.
--
--Bodily 19.
--
--We do not support the creators/admins of TDF.
+- Please be cautious when interacting with us, we're extremely sensitive.
+- Bodily 19.
+- We do not support the creators/admins of TDF.
